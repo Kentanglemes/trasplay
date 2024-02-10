@@ -1,5 +1,5 @@
-# Aco Music - Terms of ServiceAco Music - Terms of Service
-Dengan menggunakan Aco Music, Anda setuju untuk mematuhi dan terikat pada syarat dan ketentuan yang diuraikan dalam dokumen ini. 
+# Trasplay - Terms of Service
+Dengan menggunakan Trasplay, Anda setuju untuk mematuhi dan terikat pada syarat dan ketentuan yang diuraikan dalam dokumen ini. 
 
 # Perjanjian Pengguna
 
